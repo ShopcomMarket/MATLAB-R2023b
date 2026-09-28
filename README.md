@@ -12,7 +12,7 @@ https://www.shopcom.tn/product/matlab-r2023b/
 Product Price : 2,153 $
 
 Payment :
-https://www.shopcom.tn/payment
+https://www.shopcom.tn/payments
 
 Website :
 https://www.shopcom.tn
